@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Aidan
+- 👀 I’m interested in Anything I can learn to do
+- 🌱 I’m currently learning Developing Applications/Games
+- 📫 How to reach me wyattamerica@mail.com/Hacky#6611
